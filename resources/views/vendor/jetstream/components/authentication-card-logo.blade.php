@@ -1,0 +1,1 @@
+<img src="https://sortlist.gumlet.io/sortlist-core-api/85t5dssf4x5o8rd81vcnbts0ow60?w=112&format=auto">
